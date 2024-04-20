@@ -1,4 +1,4 @@
-swu-ds525 Week 3 Sutee Punakabut ID : 65199160204
+swu-ds525 Week Sutee Punakabut ID : 65199160204
 
 /////////////////
 
